@@ -1,0 +1,1 @@
+# Adobe-Master-Collection-Cr4ck
